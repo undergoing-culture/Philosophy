@@ -2,7 +2,7 @@
 
 *For the Lady of Christ’s*
 
-“Something that is completely clean can also be completely sterile” -  *Nixon, private memorandum, 1972*
+“Something completely clean can also be completely sterile” -  *Nixon, private memorandum, 1972*
 
 ---
 
@@ -68,4 +68,32 @@ We must not slink from the terror.
 
 ---
 
-*more to come...*
+We must stop deceiving our children with the lie that they choose who they are.
+
+When we tell them this, we are making them into something.
+
+We should consider whether it is what we want them to be.
+
+But if not freedom, then what?
+
+A culture is not chosen. It is continued.
+
+Becoming informed by a culture is always painful. But it need not be made more painful.
+
+Culture comes to us first through our mothers' bodies.
+
+Later, it comes through food, rituals, and sex.
+
+We do choose whether or not to engage in these things. But we do not choose which of them will resonate with us.
+
+If we lose touch with the things that resonate with us, we begin to fade.
+
+It is not good to fade.
+
+The culture of freedom pretends to be chosen. It even demands it.
+
+But what other choice did most of us have?
+
+We continue it, so that we will not fade.
+
+---
