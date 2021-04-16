@@ -97,3 +97,122 @@ But what other choice did most of us have?
 We continue it, so that we will not fade.
 
 ---
+
+People are so often not on the same page.
+
+Are they even in the same book?
+
+---
+
+Kant says that the only moral law is to allow each individual to express his or her autonomous will.
+
+But where do these wills come from?
+
+Surely from our bodies.
+
+Surely from our cultures.
+
+How else would individuals know what to want?
+
+I want to be an autonomous individual, like everyone else.
+
+---
+
+Moralities are enforced through punishment.
+
+We punish those who are not individual enough.
+
+But what about family?
+
+---
+
+Families make the same kind of noise.
+
+We need to be near those who make familiar noise, because otherwise we fade.
+
+A family can be made from autonomous individuals, but something is missing.
+
+What is missing is the recognition of similarity.
+
+---
+
+We are made similar by the absorption of culture.
+
+Does culture exist at the level of micro-organisms?
+
+In yogurt it does.
+
+Are we made similar by sharing yogurt?
+
+---
+
+This is just one example.
+
+We are certainly made similar through sex.
+
+---
+
+What if the yogurt goes bad?
+
+Will the reaction in my gut affect my will?
+
+Yes, it surely will.
+
+---
+
+Those who have better yogurt will have better bodies and minds.
+
+Perhaps this is usually better left unsaid.
+
+We don’t want to arouse the anger of those who have had bad yogurt, through no fault of their own.
+
+One cannot put new yogurt into old yogurt cups.
+
+---
+
+But what if we *do* put new yogurt into old yogurt cups?
+
+---
+
+The point of life is to blossom, and to thrive. 
+
+To spread our influence, and to make that influence endure.
+
+The best way to make influence endure is to genuinely benefit others.
+
+---
+
+The culture of freedom has many benefits, but it does not leave much room for influencing others.
+
+So then what is life for?
+
+---
+
+Moral purity is not an end in itself.
+
+It is at best a means of increasing our capacity to benefit others.
+
+---
+
+Roman law promises power that can never exist for humans.
+
+It is the power of making a decree that is valid always and everywhere.
+
+Human laws, by contrast, are contingent.
+
+Thinkers in the early modern period began to notice this.
+
+They said that power derives from the consent of the governed.
+
+But this is only part of the story.
+
+No amount of voting can make men immortal, or less dependent on food.
+
+Power may be maintained by the consent of the governed, but it derives from nature.
+
+In particular, from biological processes.
+
+Roman-style laws often trammel over the biological processes that constitute culture.
+
+In so far as this is the case, Roman-style law leads to weakness rather than power, slavery rather than mastery.
+
