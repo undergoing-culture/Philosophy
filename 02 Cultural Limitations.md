@@ -1,4 +1,4 @@
-### Cultural Democracy
+### Cultural Limitations
 
 *For the Lady of Christ’s*
 
@@ -40,7 +40,7 @@ I put my body into the larger body.
 
 Is this sexual? Almost. Or at least, eventually.
 
-This is being part of a culture.
+This is a part of being a culture.
 
 This is being cultured.
 
@@ -198,7 +198,7 @@ Roman law promises power that can never exist for humans.
 
 It is the power of making a decree that is valid always and everywhere.
 
-Human laws, by contrast, are contingent.
+Human laws are contingent.
 
 Thinkers in the early modern period began to notice this.
 
@@ -212,7 +212,63 @@ Power may be maintained by the consent of the governed, but it derives from natu
 
 In particular, from biological processes.
 
-Roman-style laws often trammel over the biological processes that constitute culture.
+---
 
-In so far as this is the case, Roman-style law leads to weakness rather than power, slavery rather than mastery.
+I reject the idea that nature is ruthless.
+
+Humans are ruthless. Nature is very lazy. 
+
+Nature is only ruthless when threatened.
+
+If humans are often ruthless, it is only because they are often threatened.
+
+---
+
+I think we are in a dark age.
+
+The difference between a dark age and a light age is that nobody in the future will look to the dark age as an example.
+
+I cannot recommend looking to us as an example.
+
+We do not know what we are doing.
+
+---
+
+We must try to know what we are doing.
+
+How can we find an example?
+
+There have been light ages, but their examples blind us.
+
+We may not adjust well to their light.
+
+We must look for examples that meet us where we are.
+
+Or can we become such examples?
+
+---
+
+How can we become such examples?
+
+By returning to fundamentals.
+
+By encountering plants and animals.
+
+By gardening.
+
+---
+
+All good examples move carefully.
+
+This is a test of goodness.
+
+The thrill of annihilation is barbaric.
+
+Good examples are not barbaric.
+
+---
+
+Good examples cultivate society like a garden.
+
+They dislike weeds as much as barbarians.
 
