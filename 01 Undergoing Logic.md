@@ -134,7 +134,7 @@ How can this be?
 
 To “hold true” is to remain relevant.
 
-The tautology is in always place: the group makes me as I make the group. I make the group as the group makes me.
+The tautology is always in place: the group makes me as I make the group. I make the group as the group makes me.
 
 How do I remain relevant? By being a part of something relevant. How do things remain relevant? By having participants.
 
