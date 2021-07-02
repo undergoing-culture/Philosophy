@@ -272,3 +272,152 @@ Good examples cultivate society like a garden.
 
 They dislike weeds as much as barbarians.
 
+---
+
+Since the discovery of the New World, one of the dominant modes of power in Western Europe has been Giver of Gifts from Afar.
+
+Those with more foreign gifts have had more power.
+
+Perhaps we are stretched too thin, “like butter spread over too much bread.”
+
+We could make do with more butter or less bread.
+
+---
+
+This mode of power is even more prevalent in the New World itself.
+
+---
+
+The chief virtue in a liberal society is humility.
+
+One cannot know what another values.
+
+Are there simply too many values?
+
+---
+
+But are we to value liberalism? Or liberty? Or life and the pursuit of happiness?
+
+How should we treat those who do not value these things?
+
+Should we educate them? Punish them? Tolerate them?
+
+Each path has its advantages.
+
+---
+
+We should culture with them.
+
+We should adapt to them, and hope that they likewise adapt to us.
+
+We should evolve together.
+
+---
+
+But we should recognize some limitations.
+
+---
+
+Aristotle was wrong to project human reasoning onto the cosmos.
+
+The cosmos is not rational.
+
+Only humans are rational.
+
+Reasoning is a human activity.
+
+---
+
+Then, what is the cosmos?
+
+It is chaos. 
+
+But this cannot be. The cosmos is stable.
+
+Then it is a collection of balanced opposites.
+
+---
+
+The interplay of opposites, we call culture.
+
+It is well that these forces have a common ancestor.
+
+That is why they can harmonize.
+
+---
+
+Reasoning is one kind of culture. It is not unique to humans, though humans are skilled at it.
+
+Reasoning cannot transcend life.
+
+Reasoning depends on life.
+
+---
+
+For centuries, mystics have claimed that ultimate reality is unknowable.
+
+No doubt we will continue ignoring them.
+
+---
+
+Many humans believe that they have control over their lives.
+
+I doubt this, but the belief is important.
+
+Without it, we may not survive.
+
+---
+
+What does belief offer us?
+
+A shared cooperative framework.
+
+An understanding of which behaviors are permitted and which are punished.
+
+Without these, there could be no cities.
+
+---
+
+Aristotle’s folly, and ours, lies in seeking a universal belief.
+
+There can never be any such thing.
+
+Logic is in the mind, if we’re lucky.
+
+It can never be anywhere else.
+
+---
+
+Perhaps it would be better to call this Alexander’s folly.
+
+Belief spread by the sword.
+
+---
+
+There is a cooperative spirit in humans more magnificent than in any other animal.
+
+This is enabled by belief in a common cause.
+
+But whose cause?
+
+---
+
+The cultural marxists think they can do away with belief.
+
+How will they feel when we stop believing in their cause?
+
+---
+
+The meritocrats believe in ambition alone.
+
+Does this not uproot all belief?
+
+---
+
+The cause must be cooperative.
+
+It doesn’t matter whose it is.
+
+It also must sustain us.
+
+The cause cannot transcend life.
